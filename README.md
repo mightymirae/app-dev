@@ -1,4 +1,4 @@
-# The Lion King: A Timeless Classic 🦁👑
+# The Lion King: A Timeless Classic
 
 ## Overview
 *The Lion King* is a **1994 animated film** produced by **Walt Disney Feature Animation** and released by **Walt Disney Pictures**. It is one of Disney's most beloved and successful films, blending stunning animation with memorable music and powerful storytelling.
